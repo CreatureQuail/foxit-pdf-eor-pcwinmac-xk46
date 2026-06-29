@@ -1,4 +1,4 @@
-# 
+# Professionnel Foxit PDF Editor modèles pour Mac OS | Officiel Foxit PDF Editor modèles pour PC Windows. Avec outils de collaboration et facturation récurrente — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
